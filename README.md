@@ -5,4 +5,4 @@
 
 - 📫 How to reach me: Rivaldomascarenhas007@gmail.com
 
-- ⚡ Fun fact: Estou gostando muito de aprender a programar para web,  acho que encontrei a profissão para minha vida!! # Dev!!
+- ⚡ Fun fact: I'm really enjoying learning to program for the web, I think I've found the profession for my life!! # Dev!!
